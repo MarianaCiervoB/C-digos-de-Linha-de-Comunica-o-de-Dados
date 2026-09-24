@@ -1,1 +1,0 @@
-# C-digos-de-Linha-de-Comunica-o-de-Dados
